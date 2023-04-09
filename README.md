@@ -12,5 +12,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about  anything
 - 📫 How to reach me @ : bhosalesraya77@gmail.com
 - 😄 Pronouns: she
-- ⚡ Fun fact:the distance from my 🏠 to 🌞 is eaqual to the distance from 🌞 to 🏠😜
+- ⚡ Fun fact:the distance from my 🏠 to 🌞 is equal to the distance from 🌞 to 🏠😜
 
